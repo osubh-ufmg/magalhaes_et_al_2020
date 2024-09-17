@@ -1,8 +1,8 @@
-### Magalhães AS, Moreira B de S, Costa DA d S, Andrade ACS, Caiaffa WT. Association of mammography with sociodemographic and care factors in residents of Belo Horizonte, MG, Brazil. Mastology. 2020;30:1-9. DOI: https://doi.org/10.29289/25945394202020200011
+## Projeto: Move-se Academias
 
 <br>
 
-### Projeto: Move-se Academias
+### Referência: Magalhães AS, Moreira B de S, Costa DA d S, Andrade ACS, Caiaffa WT. Association of mammography with sociodemographic and care factors in residents of Belo Horizonte, MG, Brazil. Mastology. 2020;30:1-9. DOI: https://doi.org/10.29289/25945394202020200011
 
 <br>
 
